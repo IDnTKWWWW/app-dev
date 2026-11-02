@@ -29,8 +29,7 @@ Realizing how little she understood the people who meant the most to her, she em
 
 1. **Unique Premise:** It starts where most fantasy stories end—after the final boss is already defeated.
 2. **Masterful World-Building:** Every town carries the quiet legacy of the Hero's Party from decades ago.
-3. **Incredible Animation & Score:** Produced by Studio Madhouse with an emotional soundtrack composed by Evan Call.
-4. **Themes of Time and Memory:** It highlights how even small, everyday moments with friends become priceless memories.
+3. **Incredible Animation & Score:** Produced by Studio Madhouse with an great soundtrack composed by Evan Call.
 
 ---
 
